@@ -1,1 +1,1 @@
-I'm Amang or 440-dev, author 440-chan discord bot
+I'm Amang or 440-dev, author 440-chan on discord
